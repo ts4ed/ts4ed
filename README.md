@@ -8,8 +8,8 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on getting a job in Front-End
 - 🌱 I’m currently learning everything related to it 👆🏻
 - 👯 I am looking for cooperation with interesting and purposeful people
+- ⚡ Fun fact: I love dancing and rock climbing =)
 - 📫 You can find and contact me using the links below 👇🏻
-- ⚡ Fun fact: I love dancing and rock climbing 
 
 🗂️My contacts & social media:
 
